@@ -1,1 +1,3 @@
-# gentle-and-lowly
+# *Gentle and Lowly: Discovering the Tender Heart of Christ for Sinners and Sufferers*
+## *In the landscape of modern Christian literature, few books have resonated as deeply or as quickly as Dane Ortlund’s Gentle and Lowly: The Heart of Christ for Sinners and Sufferers. While many theological works focus on what Jesus did (theology of the cross) or what Jesus said (theology of the Word), Ortlund focuses on who Jesus is—specifically, his heart.* [More details…](https://spiritualkhazaana.com/gentle-and-lowly-christ-sinners-sufferers/)
+## #gentleandlowly #likejesus #followjesus #heartofjesus #hiswaysarenotourways
